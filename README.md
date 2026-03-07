@@ -2,7 +2,7 @@
 
 ### Frontend Engineer | Web Performance Enthusiast | Aspiring Full-Stack | Lead at heart 🧘‍♂️
 
-### Mixing curiosity, science, technologies, design, and a touch of geek magic 🎲
+### Mixing curiosity, science, technologies, design, art, and a touch of geek magic 🎲
 
 ### Crafting stuff with love & friends 🤝
 
